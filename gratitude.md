@@ -10,3 +10,7 @@ Initial gratitude journal setup with first entry - adding this line too.\
 adding this new line and commiting through vs code 
 
 This is a line I'm adding to my graditutde journal. I'm grateful to be alive and healthy. Github commit practice for pursuit agent.
+
+#Gratitude for today.
+
+I'm grateful for my husband, having a roof over my head, and food in my kitchen. I'm happy I can run, jump, dance, exercise, and walk long distances. I'm glad my ears work so I can hear music and fall in love with it. I'm glad my eyes work so I can see beauty in fashion. I'm glad my kids are healthy and safe. 
