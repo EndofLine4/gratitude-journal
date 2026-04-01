@@ -17,4 +17,4 @@ I'm grateful for my husband, having a roof over my head, and food in my kitchen.
 
 Well, for 3.30.2026 I'm grateful for the oppurtunity to showcase the work I can do.
 
-I'm grateful for being in Pursuit. I have my reservations and doubts abou it, but ultimately I'm advancing in both professional and social skills that I wouldn't be if I weren't in the program. 
+I'm grateful for being in Pursuit. I had my reservations and doubts, as nothing's guaranteed, but ultimately I'm advancing in both professional and social skills that I wouldn't be if I weren't in the program and ironing out what I want to do with my time in the program.
