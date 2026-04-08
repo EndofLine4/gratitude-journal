@@ -18,3 +18,5 @@ I'm grateful for my husband, having a roof over my head, and food in my kitchen.
 Well, for 3.30.2026 I'm grateful for the oppurtunity to showcase the work I can do.
 
 I'm grateful for being in Pursuit. I had my reservations and doubts, as nothing's guaranteed, but ultimately I'm advancing in both professional and social skills that I wouldn't be if I weren't in the program and ironing out what I want to do with my time in the program.
+
+Today, 4/7/2026, I'm grateful to be working on a fashion styling app that feels exciting and motivatiing to work on. I think it'll come out pretty cool. I'm also happy to feel like I like code again - in a way that makes me want to learn and go deeper. Because they are people at many different levels and you just have to focus on havig the ability to create something that you want. And then teh bug comes back again. I have many interests and when you're not in a particular working role you can get lost in which interest to chase verses another. 
