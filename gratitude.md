@@ -26,3 +26,5 @@ Assignment from 4.01 - wednesday: I'm grateful for my mind.
 Today, I'm grateful that I sat with Aisling and Schiffon because we unexpectantly started talking about family history and events that impacted us. It was also good to share presentations today. There's always interesting results.
 
 Today, I'm grateful for the oppurtunity to build projects that I didn't think I could build. I'm grateful for many of the conversations that I've had over the course of the cohort as well. The weeks of building projects are my favorite over the earlier weeks but of course you need that in order to face the build weeks. No matter what happens from now until the end, I'm glad I showed up and plan to finish L1 this time around. 
+
+Realize that I put in my entry for yesterday as if it was today because I was catching up on work. So, I'm grateful for my projects and showing myself that I have good ideas that are useful. I've also learned the value of persistence. It's hard when you've been trying at things for so long and not getting what you want out of it, but learning to stay calm and work through whatever it is IS the real point.
