@@ -30,3 +30,5 @@ Today, I'm grateful for the oppurtunity to build projects that I didn't think I 
 Realize that I put in my entry for yesterday as if it was today because I was catching up on work. So, I'm grateful for my projects and showing myself that I have good ideas that are useful. I've also learned the value of persistence. It's hard when you've been trying at things for so long and not getting what you want out of it, but learning to stay calm and work through whatever it is IS the real point.
 
 Entry for 4-18-2026: I'm grateful for each day that I get to get up and try it again.
+
+Entry for 4-19-2026: I'm grateful for  laughter and thoughts that make you smile.
