@@ -33,4 +33,6 @@ Entry for 4-18-2026: I'm grateful for each day that I get to get up and try it a
 
 Entry for 4-19-2026: I'm grateful for  laughter and thoughts that make you smile.
 
-Entry for 4-4-2026: I'm grateful that I can go back and comeplete unffinished submisions. The question and answer format in the agent helps inform our lessons each week and how to apporach them.
+Entry for 4-4-2026: I'm grateful that I can go back and comeplete unfinished submisions. The question and answer format in the agent helps inform our lessons each week and how to approach them.
+
+Entry for 4-22-2026: I'm grateful for leanring how to build websites and apps with AI tools. I'm grateful for the loaner laptop from Pursuit because I wouldn't have a macbook to use for work without it. I'm grateful for VS Code becuase it has remained as my favorite IDE. 
